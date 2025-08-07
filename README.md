@@ -21,7 +21,7 @@ Success often hinges on how you promote yourself, act professionally, and includ
 Is it safe?
 How safe can vary a great deal based on the platform you choose and how well you shield your identity, so try to use watermarking, separate email accounts, and do not share any personal information, etc. A trusted marketplace or content-hosting platform will offer verification and payment protections on behalf of buyers and sellers.
 
-(FeetFinder)[https://www.tycoonstory.com/is-feet-finder-legit/] is one platform that has been popular for being user-friendly and seller-focused, requiring sellers and buyers to verify their IDs first and allowing sellers to manage their content and pricing with ease.
+[FeetFinder](https://www.tycoonstory.com/is-feet-finder-legit/) is one platform that has been popular for being user-friendly and seller-focused, requiring sellers and buyers to verify their IDs first and allowing sellers to manage their content and pricing with ease.
 
 Pros and Cons
 Pros:
